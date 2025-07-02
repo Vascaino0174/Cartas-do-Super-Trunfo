@@ -1,1 +1,1 @@
-# Cartas-do-Super-Trunfo
+# cartassupertrunfo
